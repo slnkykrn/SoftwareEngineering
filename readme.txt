@@ -1,0 +1,1 @@
+deneme!Github öðrenimi ilk koyulan dosya!
